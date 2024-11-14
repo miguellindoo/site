@@ -1,1 +1,1 @@
-o site que eu estou fazendo é sobre vendas ou trocas.
+é sobre vendas de bike e peças ou coisas do tipo
